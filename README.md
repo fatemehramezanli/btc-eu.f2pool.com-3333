@@ -1,0 +1,1 @@
+# btc-eu.f2pool.com-3333
